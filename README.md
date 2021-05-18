@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Anurag Shrivastava
 - 👀 I’m interested in Graphic Designing and a bit of coding like maybe not sure...
-- 🌱 I’m currently learning java form pep coding website.
+- 🌱 I’m currently learning java from pep coding free resources.
 - 💞️ I’m looking to collaborate on maybe future projects.
 - 📫 How to reach me? Dm me on Instagram @shrivastavasaheb
 
